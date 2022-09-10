@@ -37,5 +37,5 @@
 
 
 
-Do not get wrong ideas I can only understand English and Hindi Languages😜 
+Do not get wrong ideas I can only understand English and Hindi Language😜 
 Above mention languages are just to welcome you all guys🥰🙆‍♂️
